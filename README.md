@@ -7,4 +7,6 @@
 🥔 Science is not about WHY, it's about WHY NOT!  
 📐 NEROVNO!!!  
   
-**Contact me on Telegram: [@NotYutaRedux](https://t.me/NotYutaRedux)**
+**Contact me on Telegram: [@YutaRedux](https://t.me/YutaRedux)**
+---
+old readme from march 2022, but who cares lol
